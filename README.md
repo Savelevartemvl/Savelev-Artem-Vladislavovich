@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Savelev Artem Vladislavovich 
-- 👀 I’m interested in sportprogramming and math, alpine skiing and just sport, cooking,  
+- 👀 I’m interested in sportprogramming and math, alpine skiing and just sport, cooking and also tracking 
 - 🌱 I’m currently learning sportprogramming, algorithm, robotics and math
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Telegram by nik @Saveliev_Artyom and by email savelev_artem_vl@mail.ru
